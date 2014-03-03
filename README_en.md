@@ -1,4 +1,0 @@
-AMT
-===
-
-All My Travels
